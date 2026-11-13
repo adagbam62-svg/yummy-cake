@@ -1,2 +1,2 @@
-# yummy-cake-
+# yummy-cake
 Pâtisserie et viennoiseries 
